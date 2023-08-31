@@ -13,6 +13,13 @@ Araku Valley, a hidden gem nestled amidst the Eastern Ghats, holds a special pla
 2. Coffee Plantation Tour
 3. Tribal Museum Visit
 
+## Delightful Dishes to Try
+
+- Bamboo Chicken
+- Andhra Biryani
+- Pachi Pulusu
+- Tea and Coffee
+
 ---
 
 

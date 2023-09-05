@@ -5,8 +5,10 @@
 I'm a passionate girl who loves to be achieve something bigger. Exploring vivid places is my favorite pastime, and I'm always excited to learn new things and share my knowledge with others.
 
 [Pranitha Reddy Policepatel](Policepatel.jpeg)
+
+
 ---
-## Recommended Sports
+# Recommended Sports
 
 If you're looking for exciting sports to try out, here are four great options, each with its unique benefits. Whether you're seeking adventure, fitness, or social interaction, these sports have something to offer. Check out the table below for more details:
 

@@ -6,5 +6,4 @@ I'm a passionate girl who loves to be achieve something bigger. Exploring vivid 
 
 ![Pranitha Reddy Policepatel](Policepatel.jpeg)
 
-For more details about me, check out [MyStats](MyStats.md)
 

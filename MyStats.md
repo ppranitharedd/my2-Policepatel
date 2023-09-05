@@ -23,5 +23,18 @@ These sports cater to a range of interests and fitness levels, so you're sure to
 
 ---
 
+---
+# Inspirational Scientist Quotes
 
+Here are two thought-provoking quotes by scientists that have left a lasting impact on our understanding of the world. These quotes reflect the curiosity, dedication, and wisdom of those who have shaped the course of science:
+
+> *"The important thing is to not stop questioning. Curiosity has its own reason for existence."*  
+> - *Albert Einstein*
+
+> *"In every work of genius, we recognize our own rejected thoughts; they come back to us with a certain alienated majesty."*  
+> - *Ralph Waldo Emerson*
+
+Let these words inspire you to embrace curiosity and the pursuit of knowledge in your own life.
+
+---
 
